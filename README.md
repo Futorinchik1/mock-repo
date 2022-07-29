@@ -2580,3 +2580,12 @@ I'm really exited to join Kottans!
 ## Hi my name is Anastasia😺😺
 I am very glad that I have the opportunity to take this course. Already from the first task I learned a lot of new information😻
 
+
+
+Hi! Im Oleg. Im glad to join the community^^
+
+![image](https://user-images.githubusercontent.com/109894222/181772742-23022072-c92d-4a34-aca9-4a9fb4f04727.png)
+
+there's my link of git acc:
+https://github.com/Futorinchik1
+
